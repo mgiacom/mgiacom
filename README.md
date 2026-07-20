@@ -1,4 +1,3 @@
-# Welcome!
 
 ## Notice (July 2026)
 
